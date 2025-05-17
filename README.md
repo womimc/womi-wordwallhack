@@ -1,1 +1,1 @@
-# ⚠️!⚠️ Made for educational purposes ⚠️!⚠️
+# ⚠️ Made for educational purposes ⚠️
